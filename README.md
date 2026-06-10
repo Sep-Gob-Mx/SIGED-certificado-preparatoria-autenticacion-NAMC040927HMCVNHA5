@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-NAMC040927HMCVNHA5
+NAMC040927HMCVNHA5
